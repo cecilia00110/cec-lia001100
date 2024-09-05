@@ -11,6 +11,8 @@ gosto de sair
 
 tenho 15 anos 
 
-![](https://tenor.com/pt-BR/view/like-thumbs-up-stars-awesome-gif-15811556)
+eu pretendo entrar em uma faculdade 
+
+![](https://media.tenor.com/IZH_k7F9aqcAAAAi/music.gif)
 
 ![](https://media.tenor.com/OYFupIOXEKkAAAAM/smiling-giggle.gif)
